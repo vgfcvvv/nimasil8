@@ -1,2 +1,0 @@
-# nimasil8
-bh
